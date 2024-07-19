@@ -8,6 +8,7 @@
 - https://demonstrations.wolfram.com/AreaAndVolumeOfNDimensionalSpheres/ is a good website for determining which higher dimensional formula you need to calculate which higher dimensional volume or hypervolume, for spheres. Wormhole / Space-Time Tunnel Mathematics.
 - Excite Entangled Bodies To Make Wormholes - Physics + A Song - Available On Streaming Music Services Worldwide.
 - Taylor Swift is very good looking in the music video for the song 'Bad Blood', and that music video has Selena Gomez in it as well. If Nicki Minaj was a star in that video as well, it would be nearly perfect! Look inside buildings, not merely to see if their exteriors are similar, in terms of knowing if you know a location. International Business Machines and IBM should all know DeepBlue.
+- Tumblr.com is an interesting resource for content + information. Google and Microsoft and Bing and CoPilot and Gemini and Llama and Meta and Facebook and OpenAI and ChatGPU are all interesting search terms.
 
 <!---
 beamitup/beamitup is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
