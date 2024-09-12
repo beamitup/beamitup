@@ -2,7 +2,7 @@
 - 👀 I’m interested in CyberSecurity, Robotics, and Artificial Intelligence (AI).
 - 🌱 I’m currently learning Python, Neuromorphic Computing, and Symbolic Logic Applications for Neural Networks.
 - 💞️ I’m looking to collaborate on any of the above!!
-- 📫 How to reach me TBA!
+- 📫 How to reach me: Feel free to send me notes here!
 - 😄 Pronouns: He / Him.
 - ⚡ Fun fact: I wrote and published a book on logical suggestions for robots in 2012! Look for books on Amazon, or at their warehouses.
 - https://demonstrations.wolfram.com/AreaAndVolumeOfNDimensionalSpheres/ is a good website for determining which higher dimensional formula you need to calculate which higher dimensional volume or hypervolume, for spheres. Wormhole / Space-Time Tunnel Mathematics.
