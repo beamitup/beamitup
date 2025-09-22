@@ -12,6 +12,11 @@
 - Tumblr.com is an interesting resource for content + information. Reddit sometimes has interesting content as do the subdomains of Fandom.com especially Memory Alpha. Google and Microsoft and Bing and CoPilot and Gemini and Llama and Meta and Facebook and OpenAI and ChatGPU are all interesting search terms. Mrs. Doubtfire is a very good movie for watching, as are Star Trek (2009), Surrogates, Dune, and Star Trek: First Contact. I have an account with YouTube.com and it has very interesting music, especially related to Matisyahu, Nicki Minaj, 7!!, Taylor Swift, Lana del Rey, Selena Gomez, Camilla Cabello, and there are also many, many others. The Beatles on Ed Sullivan must have been quite a thing to see on those ginormous 17 inch black and white television screens in I guestimate, without googling the exact year myself, 1964, which would be 60 years prior to the time of this edit (push / commit) 2024.
 - One Day, violent crime will be stopped by Terminator style military robots - Think about Data from Star Trek The Next Generation with organic flesh around the robotic frame (assuredly, because police robots might not have all the military intelligence they need to analyze sufficient data) and they'll do it without Time Travel.
 
+
+yellow is here. inside all minds.
+Sendars: go away to Risa; and stop attempting to _convert_ members from inside military units opposed to yours goals - having them join you brings you under continuous attack. Those green and scaly that fed their own kind to their own kind to forever dominate them confuse you and are confused when you are confused.
+
+Sarah McLachlan - Hats that are heavy - The Legend of Zelda - Frank Herbert
 <!---
 beamitup/beamitup is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
